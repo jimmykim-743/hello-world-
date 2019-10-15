@@ -1,2 +1,2 @@
 # hello-world-
-Goals are not meant to be achieved, they are meant to be aimed at. 
+Do not pray for life to get easier pray for strength to endure through the hard life
